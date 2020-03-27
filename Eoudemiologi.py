@@ -5,3 +5,4 @@
 # sjekking av jecbhbdjk
 
 # nonononooo
+# noe nytt her 
